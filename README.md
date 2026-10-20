@@ -1,0 +1,2 @@
+# premium-scenic-paint-001-scenic-painting-stage-backdrop
+Stop guessing where the vanishing point should be—your audience will know if it's off. For scenic painters, even a half-degree error in perspective breaks the illusion of depth on stage.  The Scenic Painting Stage Backdrop Perspective Planner eliminates the trial-and-error of forced perspective by automating vanishing point calculations and scale r
